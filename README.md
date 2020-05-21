@@ -1,0 +1,2 @@
+# SOW---Biconomy-linsting
+Dear Esteemed Users  We are excited to announce Our Listing on BICONOMY exchange!  ✓Trading commences: 05/06/2020  ✓Markets: SOW/BTC  Register on BICONOMY now, deposit &amp; get ready!  https://biconomy.com/  We will be giving out $15,000 SOW to the 10 Most Active Trader for the First Month Of Listing.  More details about the Trading Competition will be announced soon.  Read more on Biconomy here: https://biconomy.zendesk.com/hc/en-us/articles/900000969326-SOW-Listing
